@@ -5,3 +5,4 @@
 Mis libros favoritos son *Sabiduria antigua* y *operación Jesucristo*
 No me gusta la ~~indiferencia~~ y la ~~irresponsabilidad~~.
 **Es muy _importante_ para mi aprender a codificar par tener un pasatiempo divertido**.
+Soy muy fan de las <sub>palomitas</sub>
