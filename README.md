@@ -18,4 +18,4 @@ Mi comida favorita
 
 `#RRGGBB`
 Mi red Socail favorita es [Instagram](https://www.instagram.com).
-! [https://www.google.com/url?sa=i&url=https%3A%2F%2Fblogs.eltiempo.com%2Fde-tripaz-corazon%2F2017%2F09%2F12%2Fde-todo-un-poco-los-colores-del-alma%2F&psig=AOvVaw0Z-hG9py4p3HKYC5JTdoSV&ust=1718145767412000&source=images&cd=vfe&opi=89978449&ved=0CBUQjRxqFwoTCNjDvPSN0oYDFQAAAAAdAAAAABAI](https://www.google.com/url?sa=i&url=https%3A%2F%2Fblogs.eltiempo.com%2Fde-tripaz-corazon%2F2017%2F09%2F12%2Fde-todo-un-poco-los-colores-del-alma%2F&psig=AOvVaw0Z-hG9py4p3HKYC5JTdoSV&ust=1718145767412000&source=images&cd=vfe&opi=89978449&ved=0CBUQjRxqFwoTCNjDvPSN0oYDFQAAAAAdAAAAABAI)
+! [Espiritual](https://www.google.com/url?sa=i&url=https%3A%2F%2Fblogs.eltiempo.com%2Fde-tripaz-corazon%2F2017%2F09%2F12%2Fde-todo-un-poco-los-colores-del-alma%2F&psig=AOvVaw0Z-hG9py4p3HKYC5JTdoSV&ust=1718145767412000&source=images&cd=vfe&opi=89978449&ved=0CBUQjRxqFwoTCNjDvPSN0oYDFQAAAAAdAAAAABAI)
