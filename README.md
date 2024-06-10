@@ -11,7 +11,6 @@ Mi comida favorita
 > Pasta
 > cafe
 > frutas
-_Me gusta el mar 
-_
+`Me gusta el mar`
 [Eso es todo
 ](url)
