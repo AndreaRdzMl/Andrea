@@ -12,7 +12,10 @@ Mi comida favorita
 > cafe
 > frutas
 
-
+Mis trabajos soñados son en:
+* Disney
+* Cancun
+* Europa
 
 Mi red Social favorita es [Instagram](https://www.instagram.com).
 Me pueden seguir como [Andrea_rdz6](https://www.instagram.com/andrea_rdz6?utm_source=ig_web_button_share_sheet&igsh=ZDNlZDc0MzIxNw==)
